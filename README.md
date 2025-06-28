@@ -1,4 +1,4 @@
-# Kimmy Leo's blog
+# Kimmy Liu's blog
 
 
 Please visit following links instead:
